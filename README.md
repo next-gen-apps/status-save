@@ -1,4 +1,6 @@
 Privacy Policy
+
+
 Effective Date: 14-03-2025
 
 Welcome to Status Save. Your privacy is important to us. This Privacy Policy explains how we collect, use, and protect your information when you use our app.
